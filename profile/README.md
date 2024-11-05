@@ -1,3 +1,5 @@
+![welcometo OF](https://raw.githubusercontent.com/otakuforge/.github/refs/heads/main/profile/img/otakuforge.png)
+
 THe logo is a if you know you know O-O (inspired by OF)
 
 
