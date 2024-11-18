@@ -3,7 +3,7 @@
 THe logo is a if you know you know O-O (inspired by OF)
 
 
-(this page is W.I.P.)
+(this page is W.I.P.) (Same with the website, so be patient please T-T)
 
 <!--
 
